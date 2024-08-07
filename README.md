@@ -6,7 +6,7 @@ Meu nome é **Amanda Oliveira**
 - Utlizo este espaço para compartilhamento dos projetos desenvolvidos.
 
 - **Você pode entrar em contato comigo** 📧📞
-- profamandaoliveira@gmail.com
+- profamandaoliveira@gmail.com ou
   (15) 997607070
 
 
